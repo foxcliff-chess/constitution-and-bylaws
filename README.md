@@ -128,4 +128,5 @@ The Tournament Director, when appointed by the Board as needed, shall exercise e
 This Constitution and By-Laws may be amended by a two-thirds vote of members present at any business meeting of the Club called for that purpose after being announced at Club meetings for four successive weeks.
 
 Date of adoption: January 6, 2023
+
 Date of revision: January 19, 2023
